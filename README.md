@@ -1,2 +1,2 @@
 # Birbo
-Tech products
+do not use our products for commercial use
